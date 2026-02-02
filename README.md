@@ -28,6 +28,10 @@ ryui sachiko, miyamari, lacy, valarie cinderfall, akumu yamiko, reiki leire, bun
   made by ME, CHITALI!!!!!!
 </p>
 
+<p align="right">
+[send me an anonymous tip](https://marshmallow-qa.com/n5i4npmek082o?t=2aEiJ1&utm_medium=url_text&utm_source=promotion)
+</p>
+
 <!--
 **CHIT4LI/CHIT4LI** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
