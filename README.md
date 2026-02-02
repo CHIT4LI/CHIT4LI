@@ -13,9 +13,12 @@ TASK NAME: CHIT4LI or Chitali Aadhara
 
 TASK PRONOUNS: they/it
 
-TASK LIKES: uhhh games and destroying them
+TASK LIKES: uhhh games and destroying them, music, horror (analog horror)
 
 TASK DISLIKES: raw ass tomatoes. and spiders.
+
+TASK FRIENDS:
+ryui sachiko, miyamari, lacy, valarie cinderfall, akumu yamiko, reiki leire, bun-min, pearl, suka, bread (lil bro)
 
 <hr>
 <p align="right">
